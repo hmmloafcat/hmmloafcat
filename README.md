@@ -7,4 +7,5 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: @loafybread_483 on Discord
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: I started been developing when I was 9
+- ⚡ Fun fact: I've been developing when I was 9
+- 🌏 Languages: Filipino, English
