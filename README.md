@@ -9,3 +9,10 @@
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: I've been developing when I was 9
 - 🌏 Languages: Filipino, English, Spanish
+- 🐧 I use: Liunx and Android
+- 😴 Lazy: Yes (I don't why I put this)
+- ▶️ Socials: @loafthecalico on TikTok and YouTube
+
+Other stuff
+
+- 🎮 Favorite game: Geometry Dash
