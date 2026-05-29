@@ -13,6 +13,11 @@
 - 😴 Lazy: Yes (I don't why I put this)
 - ▶️ Socials: @loafthecalico on TikTok and YouTube
 
-Other stuff
+## Other stuff
 
 - 🎮 Favorite game: Geometry Dash
+- 💻 Favorite OSes: Linux Mint (even though i don't use it), Android, Windows
+- 🕴️ Professional: No
+- 👍 Hobbies: Art, music production, playing games
+
+<img width="128" height="128" alt="1000000022" src="https://github.com/user-attachments/assets/9f345a97-3dd8-4993-a39b-d2644f07f463" />
