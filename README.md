@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-- 🔭 I’m currently working on EzAudio
+- 🔭 I’m currently working on EzParticles
 - 🌱 I’m currently learning C++
 - 👯 I’m not looking to collaborate
 - 🤔 I’m looking for help with myself
