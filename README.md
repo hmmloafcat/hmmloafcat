@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on EzParticles
 - 🌱 I’m currently learning C++
 - 👯 I’m not looking to collaborate
-- 🤔 I’m looking for help with myself
+- 🤔 I’m looking for help with lf_hdr
 - 💬 Ask me about anything
 - 📫 How to reach me: @loafybread_483 on Discord, or join my server: https://discord.gg/Qw68aq9TFH
 - 😄 Pronouns: he/him/his
